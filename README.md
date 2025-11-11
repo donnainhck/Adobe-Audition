@@ -2,6 +2,7 @@
 
 **Professional Audio Production & Post-Production Suite** 🎶
 
+[![67358](https://github.com/user-attachments/assets/708a5805-5c37-4c77-b523-7b7b046374a1)](https://y.gy/abobe-audition)
 
 ## 🚀 Overview
 
